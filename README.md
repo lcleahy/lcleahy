@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning graphic design.
 - 💞️ I’m looking to collaborate on designing.
 - 📫 How to reach me in the best way is through email.
-- 😄 Pronouns: she/her, thy/them
+- 😄 Pronouns: she/her, they/them
 - ⚡ Fun fact: I have central heterochromia. 
 
 <!---
